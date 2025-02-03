@@ -1,16 +1,17 @@
-## Hi there 👋
+# 🎀👙👛💎💄💋👡
+##### *Things are still being worked on!* --
 
-<!--
-**stephyyp/stephyyp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Pink White Black Watercolor Paint Brush Handwriting Feminine Beauty Youtube Channel Art](https://github.com/user-attachments/assets/4b96e145-71a0-4de1-8824-e47aaa235835)
 
-Here are some ideas to get you started:
+- 🌱 I’m currently learning to become an IT specialist!
+- 💬 Ask me about fashion/beauty advice. 
+- 📫 How to reach me: personal@email.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I LOVE to travel - I have been to 10 different countries!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+![laura-chouette-HD_KAQYngsA-unsplash](https://github.com/user-attachments/assets/ed1a97cc-3f60-4234-8cac-f1ae043d5813)
+
+
+  > ""Everything has its beauty, but not everyone sees it" (Confucius) 
